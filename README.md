@@ -1,2 +1,0 @@
-# Rajal
-Its About Me
